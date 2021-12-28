@@ -3,5 +3,5 @@
 - 💞️ I’m looking to collaborate on anything
 
 - - 📫 How to reach me  - -
-hafizh.maualana.ub@gmail.com
+hafizh.maulana.ub@gmail.com
 
